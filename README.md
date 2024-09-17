@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Keronic32
-- 👀 I’m interested in basketball, music, video games, self improvement
+- 👀 I’m interested in basketball, music, video games, singing, self improvement
 - 🌱 I’m currently learning about nutrition and transitioning into the IT career field
 - 💞️ I’m looking to collaborate on social projects as well as any training or instructional work that will better help me understand the coding language and concepts
 - 📫 How to reach me email - keronmcnair@gmail.com
